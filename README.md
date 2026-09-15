@@ -1,7 +1,1 @@
-Frau S. bezieht derzeit bei mir Leistungen nach dem Zweiten Buch Sozialgesetzbuch - SGB II.
-Frau S. teilte mir mit, dass nach mehrmaliger Anfrage bei Ihnen, sie die Lohnabrechnungen für den betreffenden Zeitraum von Ihnen nicht erhalten hat.
-
-
-Frau S. bezieht derzeit Leistungen nach dem Zweiten Buch Sozialgesetzbuch (SGB II).
-
-Frau S. teilte mit, dass sie die Lohnabrechnungen für den betreffenden Zeitraum trotz mehrfacher Aufforderung bislang nicht von Ihnen erhalten habe.
+Es wird ab dem Monat 08/2026 kein Ankommen aus der Beschäftigugn bei der Fa. TMT berücksichtigt. Vor dem 08/2026 bleibt der Nachweis des Arbeitgebers (Einkommensbescheinigung) abzuwarten. Es ist derzeit anhand des eingereichten Kontoauszuges für den Mai 2026 nicht fesstellbar welches Einkommen Sie bis einschließlich Monat Juli 2026 erzielt haben, da Sie z.B. im August per Postfachnachricht mitgeteilt haben, dass sie im letzten Monat (07/2026) das letzte mal Lohn erhalten haben.
